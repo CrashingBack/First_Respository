@@ -3,4 +3,5 @@
 Welcome to the Cult!!!
 Praise the Lord!!! praise the lord!praise the lord!
 Almight, the Torch!!!
-Guide me to HELL(!Harshal)!!!!!!!
+Guide me to where you are(Harshal)!!!!!!!
+
